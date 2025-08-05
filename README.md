@@ -1,0 +1,3 @@
+### 🌿 Health and Wellness Infographic (Video)
+
+As part of my graphic design internship at **Oasis Infobyte**, I created a dynamic video infographic focused on promoting health and wellness. This short, engaging video visually communicates essential wellness tips such as balanced nutrition, regular physical activity, mental health care, and hydration. The design combines smooth transitions, clear typography, and visual icons to deliver information in a way that is both informative and visually appealing. The goal was to make health advice easy to understand and memorable for a wide audience. This project showcases my ability to work with motion graphics and visual storytelling to create educational multimedia content.
